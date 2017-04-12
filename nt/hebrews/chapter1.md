@@ -1,9 +1,10 @@
 # Chapter 1
+
+## Sundry Times and Divers Manners
 > God, who at sundry times and in divers manners spake in time past unto the fathers by the prophets, hath in these last days spoken unto us by his Son, whom he hath appointed heir of all things, by whom also he made the worlds.  
 >   
 > Hebrews 1:1-2  
 
-## Sundry Times and Divers Manners
 The author begins with a general statement that in times past, at various junctures of history, by means of different methods, God spoke through prophets to "the fathers."
 
 ### The Fathers
