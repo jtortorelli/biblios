@@ -18,7 +18,7 @@ The Hebrew word here is *ashshaph*, and is more specific to the astrology aspect
 
 The Hebrew word here is *kashaph*, which has a more occult flavor; it's meaning is more akin to our idea of witchcraft. In addition to *chartom*, there were also *kashaph* in Pharaoh's court dueling with Moses. God's laws as recorded in the Torah have specific references to *kashaph*:
 
-> Thou shalt not suffer a witch to live (Exodus 22:18)
+> Thou shalt not suffer a **witch** to live (Exodus 22:18)
 
 > There shall not be found among you any one that maketh his son or his daughter to pass through the fire, or that useth divination, or an observer of times, or an enchanter, or a **witch**, or a charmer, or a consulter with familiar spirits, or a wizard, or a necromancer. For all that do these things are an abomination unto the Lord: and because of these abominations the Lord thy God doth drive them out from before thee. (Deuteronomy 18:10-12)
 
