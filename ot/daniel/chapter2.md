@@ -110,3 +110,63 @@ Daniel gives all credit to God for revealing the dream to him and what it pertai
 Daniel reiterates that the dream benefits the king by making future events known to him. He also reiterates that Daniel did not "earn" the privilege of knowing the dream because of any wisdom he had, but to preserve him and the other wise men and for the king's own enlightenment. God seems particularly interested with King Nebuchadnezzar's heart, as we shall see later in Daniel.
 
 >Thou, O king, sawest, and behold a great image. This great image, whose brightness was excellent, stood before thee; and the form thereof was terrible. This image's head was of fine gold, his breast and his arms of silver, his belly and his thighs of brass, his legs of iron, his feet part of iron and part of clay. Thou sawest till that a stone was cut out without hands, which smote the image upon his feet that were of iron and clay and brake them to pieces. Then was the iron, the clay, the brass, the silver, and the gold, broken to pieces together, and became like the chaff of the summer threshingfloors; and the wind carried them away, that no place was found for them: and the stone that smote the image became a great mountain, and filled the whole earth. 
+
+The dream itself was the vision of an image, or a statue, of a being composed of different metals.
+
+| Component | Metal|
+| --- | --- |
+| Head | Gold |
+| Chest & Arms | Silver |
+| Belly & Thighs | Brass |
+| Legs | Iron |
+| Feet | Iron & Clay |
+
+Then a rock cut without hands (sound familiar?) strikes the statue at its feet and the entire thing crumbles to dust and is scattered until it disappears completely. The rock becomes a mountain which fills the whole earth.
+
+## The Interpretation
+
+> This is the dream; and we will tell the interpretation thereof before the king. Thou, O king, art a king of kings: for the God of heaven hath given thee a kingdom, power, and strength, and glory. And wheresoever the children of men dwell, the beasts of the field and the fowls of the heaven hath he given into thine hand, and hath made thee ruler over them all. Thou art this head of gold. And after thee shall arise another kingdom inferior to thee, and another third kingdom of brass, which shall bear rule over all the earth. And the fourth kingdom shall be strong as iron: forasmuch as iron breaketh in pieces and subdueth all things: and as iron that breaketh all these, shall it break in pieces and bruise. And whereas thou sawest the feet and toes, part of potters' clay, and part of iron, the kingdom shall be divided; but there shall be in it of the strength of the iron, forasmuch as thou sawest the iron mixed with miry clay. And as the toes of the feet were part of iron, and part of clay, so the kingdom shall be partly strong, and partly broken. And whereas thou sawest iron mixed with miry clay, they shall mingle themselves with the seed of men: but they shall not cleave one to another, even as iron is not mixed with clay. And in the days of these kings shall the God of heaven set up a kingdom, which shall never be destroyed: and the kingdom shall not be left to other people, but it shall break in pieces and consume all these kingdoms, and it shall stand for ever. Forasmuch as thou sawest that the stone was cut out of the mountain without hands, and that it brake in pieces the iron, the brass, the clay, the silver, and the gold; the great God hath made known to the king what shall come to pass hereafter: and the dream is certain, and the interpretation thereof sure. (Daniel 2:36-45)
+
+### A Succession of World Empires
+
+The provocative implication of this dream is that it represents a succession of world dominating empires that will culminate with the arrival of God's kingdom that he will set up on the earth. That is to say, at this juncture of history, there are only four empires to go before God brings a conclusion to human history and institutes his forever kingdom.
+
+### The First Empire
+
+Daniel states that these empires follow one after the other, beginning with Nebuchadnezzar. Nebuchadnezzar (i.e., Babylon) is represented by the gold, and is the most regal and kingly of the empires, and is specifically identified as having had his authority given to him by God. This is attested to by Jeremiah:
+
+> Thus saith the Lord of hosts, the God of Israel; Thus shall ye say unto your masters; I have made the earth, the man and the beast that are upon the ground, by my great power and by my outstretched arm, and have given it unto whom it seemed meet unto me. And now have I given all these lands into the hand of Nebuchadnezzar the king of Babylon, my servant; and the beasts of the field have I given im also to serve him. And all nations shall serve him, and his son, and his son's son, until the very time of his land come: and then many nations and great kings shall serve themselves of him. (Jeremiah 27:4-7)
+
+God has not only given authority over peoples and nations to Nebuchadnezzar, but authority over nature as well!
+
+### The Second and Third Empires
+
+Following Babylon is another empire represented by silver, and thus less regal; this is generally regarded as the Persian empire. And after silver comes bronze, an even less precious metal; this is regarded as Greece. The interpretation that the next two empires are Persia and Greece is born out by comments made by the Angel of the Lord to Daniel in Chapter 10:
+
+> ...And now I return to fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come. (Daniel 10:20)
+
+This remark was made "in the third year of Cyrus king of Persia" (Daniel 10:1), or about 556 BC. The city of Babylon did not fall until 539 BC, or about 17 years after the fact.
+
+### The Fourth Empire
+
+The fourth world empire is represented by legs of iron. Iron is not a precious metal, but is frequently used in Scripture to allude to strength, especially ruthless strength, and as a metal against which other materials are broken. This refers to the Roman Empire. Just as the fourth empire consists of two wholly separate legs, so the Roman Empire was split in two: the Western Empire headquartered in Rome, and the Eastern Empire in Byzantine (later Constantinople, then Istanbul).
+
+#### The Empire Divided and Mixed
+
+Curiously the fourth empire is split into two distinct "sections." The legs are wholly iron, but the feet are of iron mixed with clay; they retain some of the strength, but they are weak, as well.
+
+In another curious turn of phrase, Daniel says that "they," that is the fourth empire, "shall mingle themselves with the seed of men." This would seem to imply that in this latter phase, the fourth empire includes some which would not be considered "seed of men." It's possible this is an allusion to the return of the strange, supernatural beings known as the "Nephilim" (Genesis 6 and elsewhere).
+
+#### Many Kings
+
+God arrives to set up his kingdom "in the days of *these kings*," plural. This could be a reference to the ten kings alluded to in Chapter 7. In Chapter 7, the same succession of world empires is described, but using wild animals as symbols instead of precious metals. You could say that Chapter 2's vision is of the world empires from man's perspective, while Chapter 7 is the same vision from God's perspective. The fourth empire is represented by a "terrible beast" which is not identified, but which has ten horns, identified as ten kings (Daniel 7:24). Just as there were ten horns on the fourth beast (at least initially), so the image has ten toes on its feet.
+
+### God's Kingdom
+
+When God arrives to set up his kingdom, he will absolutely obliterate all traces of the previous kingdoms. It's implied here that none of the kingdoms up to that point had actually disappeared; they were merely absorbed into the kingdom that overtook them. This time around, though, no human agency will stand to inherit these kingdoms, and they will be scattered like chaff and come to nothing. The rock cut without hands strikes the statue at its feet, further substantiating the timing of this event; during the "second phase" of the fourth empire.
+
+The stone cut without hands is an allusion to Jesus Christ, and he speaks of himself using these terms:
+
+> Jesus saith unto them, Did ye never read in the scriptures, The stone which the builders rejected, the same is become the head of the corner: this is the Lord's doing, and it is marvellous in our eyes? Therefore say I unto you, The kingdom of God shall be taken from you, and given to a nation bringing forth the fruits thereof. And whosoever shall fall on this stone shall be broken; **but on whomsoever it shall fall, it will grind him to powder.** (Matthew 21:42-44, emphasis added)
+
+The fact that the stone is cut "without hands" indicates the absence of human interference. The altars built to the Lord in the tabernacle were made with unhewn stones, so that man could not say he contributed to God's design. The circumcision made "without hands" is a spiritual action that God takes in a believer, and is absent of any "work" on his or her part.
