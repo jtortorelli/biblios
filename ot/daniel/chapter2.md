@@ -83,3 +83,30 @@ Daniel attributes the "wisdom and might" that were given him to God himself, and
 5. The revealer of deep and secret things
 6. The one who knows what lies in darkness
 7. The one in whom light dwells
+
+## The Dream
+
+> Therefore Daniel went in unto Arioch, whom the king had ordained to destroy the wise men of Babylon: he went and said thus unto him; Destroy not the wise men of Babylon: bring me in before the king, and I will shew unto the king the interpretation. Then Arioch brought in Daniel before the king in haste, and said thus unto him, I have found a man of the captives of Judah, that will make known unto the king the interpretation. (Daniel 2:24-25)
+
+It's interesting that Arioch tries to take credit for having "found" Daniel, when in fact Daniel has been taking initiative throughout this ordeal. He also makes a point of saying that Daniel is a captive from Judah, as if to further spite the court magicians, who are all either native Babylonians or Chaldeans.
+
+> The king answered and said to Daniel, whose name was Belteshazzar, Art thou able to make  known unto me the dream which I have seen, and the interpretation thereof? Daniel answered in the presence of the king, and said, The secret which the king hath demanded cannot the wise men, the astrologers, the magicians, the soothsayers, shew unto the king. (Daniel 2:27)
+
+Daniel lists off the same or similar job descriptions here, although now we're dealing with Aramaic, and the words are slightly different.
+
+| English Word | Aramaic | Meaning(s) |
+| --- | --- | --- |
+| Wise Men | *chakkiym* | wise, wise man, esp. a magician (corresponds to Hebrew *chakam*) |
+| Astrologer | *ashshaph* | conjurer, enchanter, necromancer, astrologer, magician (same as Hebrew *ashshaph*) |
+| Magician | *chartom* | magician, astrologer (same as Hebrew *chartom*) |
+| Soothsayer | *gezar* | to cut (as in quarrying, to cut from stone), to find out, determine (corresponds to Hebrew *gazar*) |
+
+> But there is a God in heaven that revealeth secrets, and maketh known to the king Nebuchadnezzar what shall be in the latter days. (Daniel 2:28)
+
+Daniel gives all credit to God for revealing the dream to him and what it pertains to. This is a momentous occassion, because God has seen fit to deliver to Nebuchadnezzar, a Gentile king, a vision of what shall occur in the "latter days," or what we would call the end times.
+
+> Thy dream, and the visions of thy head upon thy bed, are these; As for thee, O King, thy thoughts came into thy mind upon thy bed, what should come to pass hereafter: and he that revealeth secrets maketh known to thee what shall come to pass. But as for me, this secret is not revealed to me for any wisdom that I have more than any living, but for their sakes that shall make known the interpretation to the king, and that thou mightest know the thoughts of thy heart. (Daniel 2:28-2:30)
+
+Daniel reiterates that the dream benefits the king by making future events known to him. He also reiterates that Daniel did not "earn" the privilege of knowing the dream because of any wisdom he had, but to preserve him and the other wise men and for the king's own enlightenment. God seems particularly interested with King Nebuchadnezzar's heart, as we shall see later in Daniel.
+
+>Thou, O king, sawest, and behold a great image. This great image, whose brightness was excellent, stood before thee; and teh form thereof was terrible. This image's head was of fine gold, his breast and his arms of silver, his belly and his thighs of brass, his legs of iron, his feet part of iron and part of clay. Thou sawest till that a stone was cut out without hands, which smote the image upon his feet that were of iron and clay and brake them to pieces. Then was the iron, the clay, the brass, the silver, and the gold, broken to pieces together, and became like the chaff of the summer threshingfloors; and the wind carried them away, that no place was found for them: and the stone that smote the image became a great mountain, and filled the whole earth. 
