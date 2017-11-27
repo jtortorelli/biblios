@@ -4,7 +4,7 @@
 
 > In the second year of the reign of Nebuchadnezzar, Nebuchadnezzar dreamed dreams, wherewith his spirit was troubled, and his sleep brake from him. Then the king commanded to call the magicians, and the astrologers, and the sorcerers, and the Chaldeans, for to shew the king his dreams. So they came and stood before the king. And the king said unto them, I have dreamed a dream, and my spirit was troubled to know the dream. (Daniel 2:1-3)
 
-The wording here seems to indicate that this episode occurred during Daniel's three year training program in preparation for court service. Nebuchadnezzar had repeatedly dreamed the same dream which keeps him awake at night, so he confers with a group of court servants of specific occupations.
+The wording here seems to indicate that this episode occurred during Daniel's three year training program in preparation for court service. Nebuchadnezzar had repeatedly dreamed the same dream which kept him awake at night, so he confers with a group of court servants of specific occupations.
 
 ### Magicians
 
