@@ -135,13 +135,13 @@ The provocative implication of this dream is that it represents a succession of 
 
 Daniel states that these empires follow one after the other, beginning with Nebuchadnezzar. Nebuchadnezzar (i.e., Babylon) is represented by the gold, and is the most regal and kingly of the empires, and is specifically identified as having had his authority given to him by God. This is attested to by Jeremiah:
 
-> Thus saith the Lord of hosts, the God of Israel; Thus shall ye say unto your masters; I have made the earth, the man and the beast that are upon the ground, by my great power and by my outstretched arm, and have given it unto whom it seemed meet unto me. And now have I given all these lands into the hand of Nebuchadnezzar the king of Babylon, my servant; and the beasts of the field have I given im also to serve him. And all nations shall serve him, and his son, and his son's son, until the very time of his land come: and then many nations and great kings shall serve themselves of him. (Jeremiah 27:4-7)
+> Thus saith the Lord of hosts, the God of Israel; Thus shall ye say unto your masters; I have made the earth, the man and the beast that are upon the ground, by my great power and by my outstretched arm, and have given it unto whom it seemed meet unto me. And now have I given all these lands into the hand of Nebuchadnezzar the king of Babylon, my servant; and the beasts of the field have I given him also to serve him. And all nations shall serve him, and his son, and his son's son, until the very time of his land come: and then many nations and great kings shall serve themselves of him. (Jeremiah 27:4-7)
 
 God has not only given authority over peoples and nations to Nebuchadnezzar, but authority over nature as well!
 
 ### The Second and Third Empires
 
-Following Babylon is another empire represented by silver, and thus less regal; this is generally regarded as the Persian empire. And after silver comes bronze, an even less precious metal; this is regarded as Greece. The interpretation that the next two empires are Persia and Greece is born out by comments made by the Angel of the Lord to Daniel in Chapter 10:
+Following Babylon is another empire represented by silver, and thus less regal; this is generally regarded as the Persian empire. And after silver comes bronze, an even less precious metal; this is regarded as Greece. The interpretation that the next two empires are Persia and Greece is borne out by comments made by the Angel of the Lord to Daniel in Chapter 10:
 
 > ...And now I return to fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come. (Daniel 10:20)
 
@@ -149,15 +149,17 @@ This remark was made "in the third year of Cyrus king of Persia" (Daniel 10:1), 
 
 ### The Fourth Empire
 
-The fourth world empire is represented by legs of iron. Iron is not a precious metal, but is frequently used in Scripture to allude to strength, especially ruthless strength, and as a metal against which other materials are broken. This refers to the Roman Empire. Just as the fourth empire consists of two wholly separate legs, so the Roman Empire was split in two: the Western Empire headquartered in Rome, and the Eastern Empire in Byzantine (later Constantinople, then Istanbul).
+The fourth world empire is represented by legs of iron. Iron is not a precious metal, but is frequently used in Scripture to allude to strength, especially ruthless strength, and as a metal against which other materials are broken. This refers to the Roman Empire. Just as the fourth empire consists of two wholly separate legs, so the Roman Empire was split in two: the Western Empire headquartered in Rome, and the Eastern Empire in Byzantium (later Constantinople, then Istanbul).
 
 #### The Empire Divided and Mixed
 
 Curiously the fourth empire is split into two distinct "sections." The legs are wholly iron, but the feet are of iron mixed with clay; they retain some of the strength, but they are weak, as well.
 
-In another curious turn of phrase, Daniel says that "they," that is the fourth empire, "shall mingle themselves with the seed of men." This would seem to imply that in this latter phase, the fourth empire includes some which would not be considered "seed of men." It's possible this is an allusion to the return of the strange, supernatural beings known as the "Nephilim" (Genesis 6 and elsewhere).
+In another curious turn of phrase, Daniel says that "they," that is the fourth empire, "shall mingle themselves with the seed of men." This would seem to imply that in this latter phase, the fourth empire includes some which would not be considered "the seed of men." It's possible this is an allusion to the return of the strange, supernatural beings known as the "Nephilim" (Genesis 6 and elsewhere).
 
-In terms of real world empires, this would mean that the Roman Empire will reform itself, but will not be as strong as it once was. We consider this to be Rome because, unlike the previous world empires, Rome was never conquered; it was split into smaller "sub-empires." The first phase of Rome is past, while this second phase is yet future.
+In terms of real world empires, since the Roman Empire is no longer around, but it's in power when it's struck by the stone cut without hands, this would mean that the Roman Empire will reform itself, but will not be as strong as it once was. We consider this to be Rome because, unlike the previous world empires, Rome was never conquered; it was split into smaller "sub-empires." The first phase of Rome is past, while this second phase is yet future.
+
+Incidentally, this is why many prophecy buffs got excited when the European Union was formed; they saw it as a first step to resurrecting the Roman Empire.
 
 #### Many Kings
 
@@ -177,11 +179,11 @@ Just as the four empires are not to be inherited by any human agency, neither wi
 
 ### The Gap
 
-If the historical representation of the image and its constituent parts is accurate, then we are currently living in the region between the legs and the feet (the shin or ankle, if you will). Although there is no gap mentioned in the dream here - the assumption is that all of these empires follow each other immediately in time - there is a definite gap in which are are currently living called the "Church Age." This gap was not foretold by Scripture because it was hidden from the Old Testament prophets, but was revealed to us living in the time between the first and second comings of Christ. Paul alludes to this mystery as one kept from previous generations in his epistles:
+If the historical representation of the image and its constituent parts is accurate, then we are currently living in the region between the legs and the feet (the shin or ankle, if you will). Although there is no gap mentioned in the dream here - the assumption is that all of these empires follow each other immediately in time; the legs join seamlessly with the feet - there is a definite gap in which we are currently living called the "Church Age." This gap was not foretold by Scripture because it was hidden from the Old Testament prophets, but was revealed to us living in the time between the first and second comings of Christ. Paul alludes to this mystery as one kept from previous generations in his epistles:
 
 > [T]he mystery which hath been hid from ages and from generations, but now is made manifest to his saints: To whom God would make known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory... (Colossians 1:26-27)
 
-> [B]y revelation he made known unto me the mystery; (as I wrote afore in few words, whereby, when ye read, ye may understand my knowledge in the mystery of Christ) which in other ages was not made known unto the sons of men, as it is now revealed unto his holy apostles and prophets by the Spirit; That the Gentiles should be fellowheirs, and of the same body, and partakers of his promise in Christ bythe gospel... (Ephesians 3:3-6)
+> [B]y revelation he made known unto me the mystery; (as I wrote afore in few words, whereby, when ye read, ye may understand my knowledge in the mystery of Christ) which in other ages was not made known unto the sons of men, as it is now revealed unto his holy apostles and prophets by the Spirit; That the Gentiles should be fellowheirs, and of the same body, and partakers of his promise in Christ by the gospel... (Ephesians 3:3-6)
 
 Jesus himself makes mention of the mystery that was hidden from the prophets of old:
 
@@ -189,13 +191,13 @@ Jesus himself makes mention of the mystery that was hidden from the prophets of 
 
 Jesus himself also set the precedent of reading the gap into Old Testament prophecy when he began his ministry in the gospel of Luke:
 
-> And Jesus returned in the power of the Spirit into Galilee: and there went out a fame of him through all the region round about. And he taught in their synagogues, being glorified of all. And he came to Nazareth, where he had been brought up: and, as his custom was, he went into the synagogue on the sabbath day, and stood up for to read. And there was delivered unto him the book of the prophet Esaias [i.e., Isaiah]. And when he had opened the book, he found the place where it was written, The Spirit of the Lord is upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised, to preach the acceptable year of the Lord. And he closed the book, and he gave it again to the minister, and sat down. And the eyes of all them that were in the synagogue were fasted on him. And he began to say unto them, This day is this scripture fulfilled in your ears. (Luke 4:14-21)
+> And Jesus returned in the power of the Spirit into Galilee: and there went out a fame of him through all the region round about. And he taught in their synagogues, being glorified of all. And he came to Nazareth, where he had been brought up: and, as his custom was, he went into the synagogue on the sabbath day, and stood up for to read. And there was delivered unto him the book of the prophet Esaias [i.e., Isaiah]. And when he had opened the book, he found the place where it was written, The Spirit of the Lord is upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised, to preach the acceptable year of the Lord. And he closed the book, and he gave it again to the minister, and sat down. And the eyes of all them that were in the synagogue were fastened on him. And he began to say unto them, This day is this scripture fulfilled in your ears. (Luke 4:14-21)
 
 What you may not realize is that Jesus stopped reading in the middle of a passage. The full passage from Isaiah reads as follows:
 
 > The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound; to proclaim the acceptable year of the Lord, **and the day of vengeance of our God**... (Isaiah 61:1-2)
 
-Jesus stopped reading on a comma, not a period. That comma has lasted more than two thousand years. So while the prophecy may read as a continuous chain of events without pause, there is, in fact, a pause, in which we are living. This pause corresponds to the boundary between the legs of iron and the feet partly of iron and partly of clay.
+Jesus stopped reading on a comma, not a period, and closed the book. That comma has lasted more than two thousand years. So while the prophecy may read as a continuous chain of events without pause, there is, in fact, a pause, in which we are living. This pause corresponds to the boundary between the legs of iron and the feet partly of iron and partly of clay.
 
 ### Summary
 
