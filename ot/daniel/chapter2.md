@@ -157,6 +157,8 @@ Curiously the fourth empire is split into two distinct "sections." The legs are 
 
 In another curious turn of phrase, Daniel says that "they," that is the fourth empire, "shall mingle themselves with the seed of men." This would seem to imply that in this latter phase, the fourth empire includes some which would not be considered "seed of men." It's possible this is an allusion to the return of the strange, supernatural beings known as the "Nephilim" (Genesis 6 and elsewhere).
 
+In terms of real world empires, this would mean that the Roman Empire will reform itself, but will not be as strong as it once was. We consider this to be Rome because, unlike the previous world empires, Rome was never conquered; it was split into smaller "sub-empires." The first phase of Rome is past, while this second phase is yet future.
+
 #### Many Kings
 
 God arrives to set up his kingdom "in the days of *these kings*," plural. This could be a reference to the ten kings alluded to in Chapter 7. In Chapter 7, the same succession of world empires is described, but using wild animals as symbols instead of precious metals. You could say that Chapter 2's vision is of the world empires from man's perspective, while Chapter 7 is the same vision from God's perspective. The fourth empire is represented by a "terrible beast" which is not identified, but which has ten horns, identified as ten kings (Daniel 7:24). Just as there were ten horns on the fourth beast (at least initially), so the image has ten toes on its feet.
@@ -172,3 +174,25 @@ The stone cut without hands is an allusion to Jesus Christ, and he speaks of him
 The fact that the stone is cut "without hands" indicates the absence of human interference. The altars built to the Lord in the tabernacle were made with unhewn stones, so that man could not say he contributed to God's design. The circumcision made "without hands" is a spiritual action that God takes in a believer, and is absent of any "work" on his or her part.
 
 Just as the four empires are not to be inherited by any human agency, neither will any human agency stand to inherit God's kingdom, because it will stand forever.
+
+### The Gap
+
+If the historical representation of the image and its constituent parts is accurate, then we are currently living in the region between the legs and the feet (the shin or ankle, if you will). Although there is no gap mentioned in the dream here - the assumption is that all of these empires follow each other immediately in time - there is a definite gap in which are are currently living called the "Church Age." This gap was not foretold by Scripture because it was hidden from the Old Testament prophets, but was revealed to us living in the time between the first and second comings of Christ. Paul alludes to this mystery as one kept from previous generations in his epistles:
+
+> [T]he mystery which hath been hid from ages and from generations, but now is made manifest to his saints: To whom God would make known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory... (Colossians 1:26-27)
+
+> [B]y revelation he made known unto me the mystery; (as I wrote afore in few words, whereby, when ye read, ye may understand my knowledge in the mystery of Christ) which in other ages was not made known unto the sons of men, as it is now revealed unto his holy apostles and prophets by the Spirit; That the Gentiles should be fellowheirs, and of the same body, and partakers of his promise in Christ bythe gospel... (Ephesians 3:3-6)
+
+Jesus himself makes mention of the mystery that was hidden from the prophets of old:
+
+> For verily I say unto you, That many prophets and righteous men have desired to see those things which ye see, and have not seen them; and to hear those things which ye hear, and have not heard them. (Matthew 13:17)
+
+Jesus himself also set the precedent of reading the gap into Old Testament prophecy when he began his ministry in the gospel of Luke:
+
+> And Jesus returnd in the power of the Spirit into Galilee: and there went out a fame of him through all the region round about. And he taught in their synagogues, being glorified of all. And he came to Nazareth, where he had been brought up: and, as his custom was, he went into the synagogue on the sabbath day, and stood up for to read. And there was delivered unto him the book of the prophet Esaias [i.e., Isaiah]. And when he had opened the book, he found the place where it was written, The Spirit of the Lord is upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised, to preach the acceptable year of the Lord. And he closed the book, and he gave it again to the minister, and sat down. And the eyes of all them that were in the synagogue were fasted on him. And he began to say unto them, This day is this scripture fulfilled in your ears. (Luke 4:14-21)
+
+What you may not realize is that Jesus stopped reading in the middle of a passage. The full passage from Isaiah reads as follows:
+
+> The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound; to proclaim the acceptable year of the Lord, **and the day of vengeance of our God**... (Isaiah 61:1-2)
+
+Jesus stopped reading on a comma, not a period. That comma has lasted more than two thousand years. So while the prophecy may read as a continuous chain of events without pause, there is, in fact, a pause, in which we are living. This pause corresponds to the boundary between the legs of iron and the feet partly of iron and partly of clay.
