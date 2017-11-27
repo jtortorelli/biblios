@@ -210,3 +210,21 @@ Jesus stopped reading on a comma, not a period, and closed the book. That comma 
 | Feet | Iron & Clay | Rome II | ??? | Future |
 
 The Church Age exists between the legs and the feet.
+
+## Aftermath
+
+> Then the king Nebuchadnezzar fell upon his face, and worshipped Daniel, and commanded that they should offer an oblation and sweet odours unto him. (Daniel 2:46)
+
+Nebuchadnezzar is so impressed by Daniel's telling of the dream that he falls down and commands his court to *worship* him!
+
+> The king answered unto Daniel, and said, Of a truth it is, that your God is a God of gods, and a Lord of kings, and a revealer of secrets, seeing thou couldest reveal this secret. (Daniel 2:47)
+
+This is the first of several occassions in the book of Daniel where Nebuchadnezzar recognizes God's primacy among all other things called god.
+
+> Then the king made Daniel a great man, and gave him many great gifts, and made him ruler over the whole province of Babylon, and chief of the governors over all the wise men of Babylon. Then Daniel requested of the king, and he set Shadrach, Meshach, and Abednego, over the affairs of the province of Babylon: but Daniel sat in the gate of the king. (Daniel 2:48-49)
+
+Nebuchadnezzar immediately appoints Daniel a ruler over Babylon, and chief of all the wise men. This understandably irked the wise men serving at the time, since Daniel was an outsider. Despite Daniel's actions saving their lives from the king's wrath, they quickly set about plotting how to put away Daniel and his three friends (see next chapter).
+
+Daniel put in a good word for his three friends, who were also placed in positions of power over Babylon. What we may not realize during the account of the fiery furnace is that these three weren't just common citizens; they were authority figures defying a royal decree.
+
+As for Daniel, he was never far from the king's presence.
