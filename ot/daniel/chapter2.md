@@ -196,3 +196,15 @@ What you may not realize is that Jesus stopped reading in the middle of a passag
 > The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound; to proclaim the acceptable year of the Lord, **and the day of vengeance of our God**... (Isaiah 61:1-2)
 
 Jesus stopped reading on a comma, not a period. That comma has lasted more than two thousand years. So while the prophecy may read as a continuous chain of events without pause, there is, in fact, a pause, in which we are living. This pause corresponds to the boundary between the legs of iron and the feet partly of iron and partly of clay.
+
+### Summary
+
+| Section | Metal | Empire | Current Focus of Power | Status |
+| --- | --- | --- | --- | --- |
+| Head | Gold | Babylon | Iraq | Past |
+| Chest & Arms | Silver | Persia | Iran | Past |
+| Belly & Thighs | Brass | Greece | Greece | Past |
+| Legs | Iron | Rome | Italy & Turkey | Past |
+| Feet | Iron & Clay | Rome II | ??? | Future |
+
+The Church Age exists between the legs and the feet.
