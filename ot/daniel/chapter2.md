@@ -170,3 +170,5 @@ The stone cut without hands is an allusion to Jesus Christ, and he speaks of him
 > Jesus saith unto them, Did ye never read in the scriptures, The stone which the builders rejected, the same is become the head of the corner: this is the Lord's doing, and it is marvellous in our eyes? Therefore say I unto you, The kingdom of God shall be taken from you, and given to a nation bringing forth the fruits thereof. And whosoever shall fall on this stone shall be broken; **but on whomsoever it shall fall, it will grind him to powder.** (Matthew 21:42-44, emphasis added)
 
 The fact that the stone is cut "without hands" indicates the absence of human interference. The altars built to the Lord in the tabernacle were made with unhewn stones, so that man could not say he contributed to God's design. The circumcision made "without hands" is a spiritual action that God takes in a believer, and is absent of any "work" on his or her part.
+
+Just as the four empires are not to be inherited by any human agency, neither will any human agency stand to inherit God's kingdom, because it will stand forever.
